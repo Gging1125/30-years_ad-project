@@ -1,1 +1,0 @@
-# 30-years_ad-project
